@@ -6,5 +6,5 @@ Hi new person! My name is Kelsey (I mostly go by Kels) and I'm a Case Manager tu
 :computer:Using my [Twitter](https://twitter.com/kelsreee) fingers :computer:   
 :paintbrush: Drawing :paintbrush: 
 
-## :headphones: [My Current Theme Song](https://www.youtube.com/watch?v=mTjQq5rMlEY) :headphones: 
-
+## :headphones: [My Current Favorite Song](https://www.youtube.com/watch?v=1Ule_qcqwUg) :headphones: 
+I'm always looking for new music. Recommendations always welcomes! :hand_over_mouth: 
