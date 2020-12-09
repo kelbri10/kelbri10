@@ -3,7 +3,7 @@ Hi new person! My name is Kelsey (I mostly go by Kels) and I'm a Case Manager tu
 
 ## If I'm not coding, catch me...
 :video_game: Streaming on [Twitch](https://www.twitch.tv/kelseyhugs) :video_game:  
-:computer:Using my [Twitter](https://twitter.com/kelsreee) fingers :computer:   
+:computer:Using my [Twitter](https://twitter.com/kelseyhugss) fingers :computer:   
 :paintbrush: Drawing :paintbrush: 
 
 ## :headphones: [My Current Favorite Song](https://www.youtube.com/watch?v=1Ule_qcqwUg) :headphones: 
