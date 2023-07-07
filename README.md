@@ -8,5 +8,3 @@
 💾 In my free time, I compete as a T2/T3 Competitive Apex Legends on Team Hugs.
 
 💾 You can reach me via email at kelbri10@gmail.com
-
-Connect with me on Linkedin[https://www.linkedin.com/in/kelsey-hughes/]. 
