@@ -1,6 +1,8 @@
-### Your favorite coder K E L S :purple_heart: 
-Hi new person! My name is Kelsey (I mostly go by Kels) and I'm a Case Manager turned Coder. I'm passionate about creating meaningful connections through everything I do.
+## Hello There :hugs: 
+💾 I'm a Florida-based Software Engineer with a passion for community building and social justice. 
+💾 I graduated from University of Maryland, Baltimore County with a Bachelor's degree in Psychology and certificate in Spanish Studies.
+💾 I have over 5+ years in the non-profit industry which has helped to build up my ability to communicate across disciplines and diverse populations.
+💾 In my free time, I compete as a T2/T3 Competitive Apex Legends on Team Hugs.
+💾 You can reach me via email at kelbri10@gmail.com
 
-## If I'm not coding, catch me...
-:video_game: Streaming on [Twitch](https://www.twitch.tv/tossichugs) :video_game:   
-:paintbrush: Drawing :paintbrush: 
+Connect with me on Linkedin[https://www.linkedin.com/in/kelsey-hughes/]. 
