@@ -8,3 +8,5 @@
 💾 I competed in Women's and Co-Ed competitive tournaments and events in Apex Legends.
 
 💾 You can reach me via email at kelbri10@gmail.com or connect with me on LinkedIn! 
+
+[![An image of @kelbri10's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/kelbri10)](https://holopin.io/@kelbri10)
