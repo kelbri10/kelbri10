@@ -3,7 +3,7 @@
 
 💾 I graduated from University of Maryland, Baltimore County with a Bachelor's degree in Psychology and certificate in Spanish Studies.
 
-💾 I have over 5 years in the non-profit industry which has helped to build up my ability to communicate across disciplines and diverse populations.
+💾 I have 5 years of experience in the non-profit industry which has helped to build up my ability to communicate across disciplines and diverse populations.
 
 💾 I competed in Women's and Co-Ed competitive tournaments and events in Apex Legends.
 
